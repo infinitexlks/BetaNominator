@@ -1,4 +1,4 @@
-**Declaration of Indain**
+**Declaration of Temu Indian**
 
 You are now a bunty or a beta.
 
